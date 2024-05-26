@@ -17,7 +17,7 @@
 
 - 💬 Ask me about **JavaScript**
 
-- 📫 How to reach me **minarulh34@gmail.ocm**
+- 📫 How to reach me **paldinesh9382@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
